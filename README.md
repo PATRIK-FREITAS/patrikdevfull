@@ -1,5 +1,5 @@
 
-- LinkedIn:# 👋 Olá, eu sou o Patrik Freitas
+ 👋 Olá, eu sou o Patrik Freitas
 
 💻 Estudante de Inteligência Artificial e Análise e Desenvolvimento de Sistemas  
 🚀 Focado em desenvolvimento backend, APIs e Machine Learning  
