@@ -57,13 +57,3 @@ Busco uma oportunidade de estágio em tecnologia para aplicar meus conhecimentos
 ---
 
 ⭐ Sempre aprendendo e evoluindo na área de tecnologia
-- Email: (coloque aqui)
-
----
-
-⭐ Sempre aprendendo e evoluindo na área de tecnologia
-- Email: (coloque aqui)
-
----
-
-⭐ Sempre aprendendo e evoluindo na área de tecnologia
